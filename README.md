@@ -1,1 +1,1 @@
-This the my resume for internshipa and placement purposes
+Resume for internships and placement purposes
